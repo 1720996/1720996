@@ -1,1 +1,1 @@
-Maths Student @ BUL
+Complex Systems Modelling Postgraduate Student @ KCL
